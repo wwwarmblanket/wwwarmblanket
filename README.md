@@ -5,7 +5,6 @@
 -->
 
 - Enjoy eating, gamin', sleeping 😴, and karaoke!
-- Full-time Eng-Th Translator
-- Self-taught front-end web dev (💪🏻 in-process)
+- Full-time Freelance English-Thai Translator
 - 🍑 Feel free to DM me via Discord `τѕυиιє#4330
 
