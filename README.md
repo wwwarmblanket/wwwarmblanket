@@ -6,5 +6,5 @@
 
 - Enjoy eating, gamin', sleeping 😴, and karaoke!
 - Full-time Freelance English-Thai Translator
-- 🍑 Feel free to DM me via Discord de.selemene
+- 🍑 Feel free to DM me via Discord de.selemene or email
 
